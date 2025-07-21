@@ -3,7 +3,7 @@
 
 ✅[Get 130 Cr+ Database Now](https://cosmofeed.com/vp/662cabf8412627001399be0c)✅
 
-Are you ready to supercharge your marketing campaigns, expand your reach, and dominate your industry in 2025? The **130 Cr+ All India Database** is here to revolutionize how you connect with your audience—and it comes with **3 exclusive free bonuses** to turbocharge your growth! 🚀
+Are you ready to supercharge your marketing campaigns, expand your reach, and dominate your industry in 2025? The **130 Cr+ All India Database** is here (Only ₹.79) to revolutionize how you connect with your audience—and it comes with **3 exclusive free bonuses** to turbocharge your growth! 🚀
 
 ## Why This Database is a Game-Changer
 
